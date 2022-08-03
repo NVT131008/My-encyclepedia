@@ -1,1 +1,1 @@
-# My-encyclepedia
+# My-encyclopedia
